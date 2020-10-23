@@ -1,2 +1,3 @@
 # GAN
-## Please connet to zhaozetong@hotmail.com for whole for the whole project 
+## To dowmload the whole project and demo video, please vist https://pan.baidu.com/s/1aQYJ4CWToHJCvyII0EUysA f7jx 
+
